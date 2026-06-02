@@ -1,16 +1,15 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**watcherbittes/watcherbittes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### MAIN WAS FLAGGED ,,
+rest in pee [@watcherbites](https://github.com/watcherbites?tab=overview&from=2025-12-01&to=2025-12-31) is no more . . .
 
-Here are some ideas to get you started:
+<img src="https://cdn.phototourl.com/free/2026-06-02-9aacb323-ad72-4aa3-9b1b-693e04f9356b.png" alt="description" width="410" height="130">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+###
+ㅤ
+[straw](https://eddiebert.straw.page/)ㅤㅤ --ㅤㅤ[prns page](https://watcherbites.atabook.org/)
+ㅤ--ㅤ[atabook](https://watcherbites.atabook.org/)
+
+###### ( *temporary layout while i get this bullshit account set up.* )
+
+###### ( **click on my links...** )
