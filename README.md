@@ -7,7 +7,7 @@ rest in pee [@watcherbites](https://github.com/watcherbites?tab=overview&from=20
 
 ###
 ㅤ
-[strawpage](https://eddiebert.straw.page/) ㅤ,,ㅤ [pronouns](https://en.pronouns.page/@watcherbites) ㅤ,,ㅤ [atabook](https://watcherbites.atabook.org/)ㅤㅤ
+[strawpage](https://einbert.straw.page/) ㅤ,,ㅤ [pronouns](https://en.pronouns.page/@watcherbites) ㅤ,,ㅤ [atabook](https://watcherbites.atabook.org/)ㅤㅤ
 
 ###### ( *temporary layout while i get this bullshit account set up.* )
 
