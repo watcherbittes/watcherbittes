@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=watcherbittese&style=flat-square&color=141414&label=my+little+larplings)
+
   
 ### MAIN WAS FLAGGED ,,
 rest in pee [@watcherbites](https://github.com/watcherbites?tab=overview&from=2025-12-01&to=2025-12-31) is no more . . .
@@ -14,3 +14,7 @@ rest in pee [@watcherbites](https://github.com/watcherbites?tab=overview&from=20
 ###### ( *temporary layout while i get this bullshit account set up.* )
 
 ###### ( **click on my links...** )
+
+## 
+
+![](https://komarev.com/ghpvc/?username=watcherbittese&style=flat-square&color=grey&label=my+little+larplings)
